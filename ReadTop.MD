@@ -1,2 +1,2 @@
-This is top's selfbot make sure to put your token in config and prefix
-This is not a token logger so don't say it is
+This is the real exeter not a token logger mohammed and swag tried to skid tro selfbot so don't download exeter from anybody who says its working bc its on my github acc
+And demon did not leak tro selfbot it is a token logger but enjoy
